@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nessa0101 and I'm here to explore!
+- 👀 I’m interested in blockchain technology, psychology, and metaphysics.
+- 🌱 I’m currently learning international business at RMIT University!
+- 💞️ I’m looking to collaborate on anything! I'm open to all opportunities.
+- 📫 Feel free to send me a request or message!
